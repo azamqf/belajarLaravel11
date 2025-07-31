@@ -13,6 +13,12 @@
 - 
 
 
+
+[firda](https://wa.me/+6285850431301).
+
+[mona](https://wa.me/+085850475900)
+
 -[firda](https://wa.me/+6285850431301).
 
 -[mona](https://wa.me/+6285850475900).
+
